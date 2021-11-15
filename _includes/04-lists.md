@@ -1,1 +1,2 @@
-Do voluntering and loved to spend with my family and friends.
+* Do voluntering.
+* Loved to spend with my family and friends.
